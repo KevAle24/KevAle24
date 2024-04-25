@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KevAle24
+- 👀 I’m interested in Cars 
+- 🌱 I’m currently learning Systems engineer 
+- 💞️ I’m looking to collaborate on Anything that allows me to learn more
+- 📫 How to reach me on my e-mail
